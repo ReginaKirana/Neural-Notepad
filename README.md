@@ -1,1 +1,1 @@
-# Neural-Notepad
+isinya bukan chord piano
